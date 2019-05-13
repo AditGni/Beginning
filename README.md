@@ -1,0 +1,2 @@
+# Beginning
+Saya ingin memulai
